@@ -5,7 +5,7 @@
 ![Untitled827_20260413220809.png](https://github.com/user-attachments/assets/f9bf5964-dc25-4fce-8b20-a4ffb502d97e)
 
     ❝stay  by  my  side  , eternally❞
-                 <333
+                   <3
 
 <!--
 **patchedlove/patchedlove** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
