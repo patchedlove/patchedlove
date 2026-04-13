@@ -1,4 +1,6 @@
-## Hi there 👋
+![Untitled827_20260413215859.png](https://github.com/user-attachments/assets/2177a0c3-c5a4-4574-8461-8bdb02d07646)
+
+       always   on   dniuf
 
 <!--
 **patchedlove/patchedlove** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
